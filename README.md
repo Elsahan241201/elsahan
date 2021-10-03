@@ -1,0 +1,2 @@
+# elsahan
+Gunakan dengan bijak
